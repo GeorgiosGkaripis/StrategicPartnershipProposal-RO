@@ -1,0 +1,1 @@
+# StrategicPartnershipProposal-RO
